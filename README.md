@@ -9,12 +9,12 @@ I indentify as a **attack helicopter**
 SKRRRRR PRAPRAPRA VRRRRRRRRRRRRRRRR
 ---
 utot hi guys mwamwa
----
+
 | Syntax | im like yo |
 | ----------- | ----------- |
 | Header | hahaahah |
 | Paragraph | sana di ako palabasin ni maam kim later |
----
+
 {
   "firstName": "Kwicaspak",
   "age": 63
