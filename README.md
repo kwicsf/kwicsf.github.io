@@ -1,5 +1,5 @@
 
-# My top 5 favortie games!!!😧
+# My top 5 favorite games!!!😧
 ---
 **1. Overwatch 2**
 
