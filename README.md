@@ -31,4 +31,4 @@
 
 > Forza Horizon 5 is a racing video game set in an open world environment based in a fictional representation of Mexico.Your initial goal is really just to do your best in races and unlock the Horizon Adventure Chapters. These become available as you earn more Accolade Points, and give you the choice of which story mission you want to take on.
 
-😊
+😨🤯😱
